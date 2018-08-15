@@ -1,4 +1,4 @@
-Nowe ultracienkie laptopy od Lenovo. Profesjonalna pomoc w podróży.
+ Nowe ultracienkie laptopy od Lenovo. Profesjonalna pomoc w podróży.
        
   Lenovo dodaje dwa nowe produkty do serii Thinkpad: Thinkpad P1 oraz P72. Pierwszy z nich przy swojej smukłości (18,4mm grubości oraz wadze 1,7kg),
   posiada porządne parametry. Najmocniejsze wersje tego modelu wyposażone będą w ekran 15.6 cala o rozdzielczości 4k ze 100-procentowym pokryciem przestrzeni 
